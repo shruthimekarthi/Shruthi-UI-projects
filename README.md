@@ -1,1 +1,0 @@
-# Shruthi-UI-projects
